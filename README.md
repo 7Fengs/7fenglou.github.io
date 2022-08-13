@@ -5,14 +5,14 @@
 https://7fenglou.com<br>
 
 ※最新网址：<br>
-https://17bo.xyz<br>
-https://17du.xyz<br>
-https://17ko.xyz<br>
-https://17pt.xyz<br>
-https://17vi.xyz<br>
-https://17xj.xyz<br>
-https://17we.xyz<br>
-https://17by.xyz<br>
+https://17bbk.xyz<br>
+https://17dis.xyz<br>
+https://17hao.xyz<br>
+https://17kai.xyz<br>
+https://17mei.xyz<br>
+https://17pao.xyz<br>
+https://17sun.xyz<br>
+https://17yao.xyz<br>
 
 温馨提示：<br>
 （1）电子邮件到 qifengges@gmail.com 立刻就能收到一份自动回复，内含最新网址。几分钟内如果你的收件箱没看到，请到垃圾文件夹找。<br>
