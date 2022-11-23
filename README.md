@@ -5,16 +5,15 @@
 https://7fenglou.com<br>
 
 ※最新网址：<br>
-https://17ban.xyz<br>
-https://17boc.xyz<br>
-https://17fad.xyz<br>
-https://17ido.xyz<br>
-https://17ksb.xyz<br>
-https://17ksl.xyz<br>
-https://17maw.xyz<br>
-https://17nna.xyz<br>
-https://17ros.xyz<br>
-https://17ubv.xyz<br>
+https://kufeng17.one<br>
+https://hifeng17.one<br>
+https://hafeng17.one<br>
+https://pafeng17.one<br>
+https://nifeng17.one<br>
+https://bafeng17.one<br>
+https://yefeng17.one<br>
+https://yafeng17.one<br>
+
 
 温馨提示：<br>
 （1）电子邮件到 qifengges@gmail.com 立刻就能收到一份自动回复，内含最新网址。几分钟内如果你的收件箱没看到，请到垃圾文件夹找。<br>
